@@ -1,0 +1,66 @@
+<h3>All Brains are beautiful - The biology of Neurodiversity<h3>
+<h3>Marcello<h3>
+
+- the Neurodiversity Umbrella
+    - Dyskalkulie
+  - epilepsy
+  - ADHD
+  - Autism
+  - ASPD
+  - BPD
+  - Dyspraxia
+  - PTSD
+  - Dyscalculia
+  - HSP
+  - Dyspgraphia
+- Judy Singer worked to promote equality of  "Neurominorities"
+- neurodiverse is not neurodivergent
+- Neurodigergergence is the two ends of the normal distribution 
+- scientific research is biased by diagnosis and social stigma
+- publication bias: Focus on what is publishable, interesting/ significant 
+- constructed model systems due to stigma
+- survivorship Bias " We tested patients in clinic XYZ"
+- clinic criteria vs subclinical features
+- ADHD and Autism 
+ - can coexist with paradoxical Traits (hyper focus)
+ - similar risk Factor
+ - genes involved in synaptic connectivity 
+ - improved in ICD11 in 2022 (transition period of 5 years ) 
+ - autism 1/36
+  - 28% of them have ADHD
+  - intense world theory
+ - ADHD /10-20
+  - 136 genes linked 
+  - 20-50% have Audhd
+  - 27 genes linked 
+  - dopamine, norepinephrine, serotin pathways are effected
+  - highly diverse spectrum
+  - 1775 first described ADHD
+  - Ritalin is the first Stimulant medication 
+ - our brain is the base of making sense what we perceive inside and outside our body
+   - sensory / stimulus processing involves 
+   - outside world 
+   - body ( proprioception ) 
+   - thoughts, feelings, memories
+- input sensitivity 
+- context can influence the processing of signals - theory of Monotropism for Autism
+ - different strategies of brains to cope with abundance of input
+ - polytrophic means a good amount of filtering 
+ - monotropic most of the attention goes to one thing only 
+ - control over excitation and regulation US dysregualted in autism and ADHD
+ - dopamine reguales the balance of networks
+ - ADHD and autism have more intrusive thoughts 
+ - autistic brains process and create more information ar rest than NTs
+ - Default mode Network 
+ - Psylocybin decreases DMN activity
+ - local sleep could also explain ADHD traits
+ - local sleep in a mower circuit as a new concept based on recent research
+ - most Networks are established during development
+ - synesthesia-like connectivity trough novel cross talk
+ - simple touch can be cross talked to make it painful 
+ - Natural variability in connectivity 
+  - even genetically identical brains display differences in connectivity ( stochastic variability)
+  - external factory can have strong effects
+  - diversity is diverse
+  - local roles and differences of neurotransmitters unclear 
+  
